@@ -1,1 +1,1 @@
-# sabya1991.github.io
+# APL 108: Mechanics of Solids (Fall semester 2022)
